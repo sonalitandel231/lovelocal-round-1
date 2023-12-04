@@ -1,1 +1,2 @@
-# lovelocal-round-1
+Sahyadri college of engineering and management mangaluru
+sonalitandeltandel@gmail.com
